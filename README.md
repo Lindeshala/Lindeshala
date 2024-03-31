@@ -1,0 +1,6 @@
+-  Hi, I’m Linde shala
+-  I’m interested in indesign
+-  I’m currently learning for Digital design
+- I live in Maldegem, Belguim
+- 📫 How to reach me: On Linkedin https://www.linkedin.com/in/linde-shala-804a872b6/  
+- ⚡ Fun fact: In addition to design, I also do something completely different: beautician
